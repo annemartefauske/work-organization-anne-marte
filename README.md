@@ -5,3 +5,5 @@ tips to organizing research
 - Not any kind of scientist, I'm a teacher student
 - Writing, studying and eating
 - My brain, mac and cheese
+- 
+- :)
